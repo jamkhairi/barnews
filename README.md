@@ -1,2 +1,0 @@
-# barnews
-Kabar dari BAREK
